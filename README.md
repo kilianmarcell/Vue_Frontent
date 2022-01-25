@@ -1,4 +1,4 @@
-# [Név]
+# Kilián Marcell
 
 ## Hogyan kezdj neki?
 
